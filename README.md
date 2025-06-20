@@ -1,1 +1,2 @@
 # datajourn
+### I chose this question because I was curious about general airplane etiquette when it comes to unsold seats. I was wondering if people considered it rude or not to move to an unsold seat, and I was also curious about whether many people agreed with my personal opinion. The chart shows and reveals that most people do not think it is rude to move to an unsold seat while only a few think it is somewhat or very rude.
